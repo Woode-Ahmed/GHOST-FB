@@ -3,6 +3,6 @@ Bypass Facebook block Access the accounts file and start registering the account
 
 
 
-[![NetProwler Logo](assets/1734832609246.jpg)](https://t.me/NO_BRAK)
+[![NetProwler Logo](1734832609246.jpg)](https://t.me/NO_BRAK)
 
 [My channel Telegram](https://t.me/NO_BRAK)
